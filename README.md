@@ -67,7 +67,4 @@
 
 <br>
 
-<h3>Statistical Data :-</h3>
-
-<br>
 

@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **rasoolahad1997.work@gmail.com**
 
-- ⚡ Fun fact : brain is the reasons to live.
+- ⚡ Fun fact : brain is the reason to live.
 
 <br>
 

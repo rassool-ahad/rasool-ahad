@@ -5,7 +5,7 @@
 
 
 
-- 🌱 I’m currently learning machine learning
+- 🌱 learning machine learning and datascience everyday
 
 - 📫 How to reach me **rasoolahad1997.work@gmail.com**
 
